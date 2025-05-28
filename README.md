@@ -1,0 +1,2 @@
+# 25T2_GAD176_Weekly_BarretoRodrigues_Pedro
+Weekly inclass activities for GAD176
